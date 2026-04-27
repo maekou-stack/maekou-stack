@@ -1,4 +1,4 @@
-# Hi, I'm Koh 倖
+# Hi, I'm Koh (倖)
 
 **Bilingual creator at the intersection of Media, Fashion, and AI.**
 
